@@ -1,1 +1,0 @@
-# book24patners.github.io
